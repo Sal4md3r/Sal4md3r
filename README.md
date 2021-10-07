@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sal4md3r, i have 21 years old and i am a university student, i am studying Software Engineering in the city of Puebla, i am very excited about learn new
+- 👋 Hi, I’m @Sal4md3r, my name is Elias & i have 21 years old and i am a university student, i am studying Software Engineering in the city of Puebla, i am very excited about learn new
 lenguages and new technologies, i don´t have any experience in a real work but one of my dreams is work in a diferent country and travel around the world meeting new 
 people and gainin experience and learn as much as possible
 - 👀 I’m interested in the web development and the software enginering on all of her disciplines.
